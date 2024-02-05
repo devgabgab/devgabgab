@@ -1,0 +1,1 @@
+- 👋 Hi, I'm devGan, I'm studying systems analysis and development, passionate about technology, innovation and everything related to this wonderful universe!
